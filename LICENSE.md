@@ -1,4 +1,4 @@
-# 
+# Oficial pump.fun sniper bot complementos para Mac OS | Avanzado pump.fun sniper bot complementos para PC Windows. Con extracción MEV y visualización de datos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
